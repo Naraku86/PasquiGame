@@ -511,3 +511,125 @@ Los perros… aullaron.
 En la casa comunal, Kaerith la pareja de Darik prepara su cuerpo en silencio.  
 🪵 Karn no suelta el bastón.  
 Y la niña duerme, abrazada por su madre, rodeada por los perros, bajo un techo de ramas tejidas con miedo y esperanza.
+
+# 🗕️ Día 10 – Tierra negra, raíces dulces y lo que crece en la muerte
+
+️ **El cuerpo de Darik fue enterrado al amanecer.**
+
+Pocas palabras. Ningún canto. La vela blanca y la negra ardieron, pero sin fuerza. La anciana Sevria insistió en colocar piedras sobre su espalda, alegando que su muerte fue impura. Los marcados lo impidieron, pero se escucharon murmullos.
+
+Orien Talek, con movimientos discretos, recogió la savia seca del silvarro. La guardó en una vasija de cerámica sellada con cera. No dijo nada. Nadie preguntó.
+
+🍯 **Recolectar para resistir**
+
+La mañana fue aprovechada:
+
+— Los jóvenes hallaron panales ocultos en los árboles más altos. Algunas picaduras, pero también puñados de miel tibia.  
+— Eysa y Tilna, junto con dos muchachos, recolectaron raíces gruesas y frutas espinosas. Los dedos vendados de Eysa sangraron, pero no se detuvo.  
+— Varek, más al sur, encontró hongos morados, blancos y naranjas.
+
+🕳️ **La grieta al oeste**
+
+Más tarde, Kaerith, Varek y un par de jóvenes se adentraron en la depresión entre piedras cubiertas de musgo.
+
+Allí abajo:
+
+— Un ciervo herido, atrapado entre raíces. Lo sacrificaron con rapidez. Su carne será útil.  
+— Herramientas oxidadas: hojas de hierro, mangos astillados… reliquias enterradas.  
+— Bajo la tierra oscura, la piedra brillaba con vetas negras y rojas. Como carbón. Como hierro. Pero nadie en el grupo sabía su nombre.
+
+Ya caía la tarde.  
+Y desde lo profundo del bosque… aullaron lobos.
+
+No bajaron más. No hoy.
+
+🌱 **Lo que queda del silvarro**
+
+El cuerpo de la criatura aún estaba allí.  
+Pero cambiaba.
+
+Donde antes había ramas secas, ahora brotaban enredaderas. Su torso se cubría de hojas gruesas, de flores negras. Como si la tierra misma lo abrazara. Como si algo lo reclamara.
+
+Karn lo observa desde lejos. No se acerca. Pero no deja de mirar.
+
+El bastón sigue con él.  
+Las runas ya no brillan… pero siguen allí.
+
+El día termina sin oración.  
+Y en el refugio, ahora completo, las puertas se cierran más fuerte que antes.
+
+---
+
+# 🗕️ Día 11 – Voces entre la maleza y ojos que no parpadean (Parte I)
+
+🌙 **La noche no fue tranquila. Fue viva.**
+
+Los árboles crujieron más de lo normal.  
+Las hojas no solo se movían con el viento.  
+Y los perros, antes guardianes silenciosos, no durmieron. Gemían. Gruñían. Algunos ladraban a la nada.
+
+Algunos juran haber visto una silueta entre la niebla.  
+Grandes astas. Jorobas con colmillos.  
+Otros creen que fueron solo ramas y el viento.  
+Pero nadie durmió bien.
+
+🌿 **Algo se rompió con la muerte del silvarro.**  
+No hay duda.  
+La fauna se mueve con más confianza. Como si un límite hubiera desaparecido.
+
+🛎️ **Y dentro del refugio, los cuerpos no mejoran.**
+
+Dos niños, hasta ayer inquietos, hoy no abrieron los ojos.  
+Respiran. Lentos.  
+Pero no responden.
+
+Orien Talek revisa, mezcla raíces, prueba hongos, bayas, hojas. Nadie le pregunta, él no habla...
+
+👥 **Las tensiones crecen.**
+
+—“Fue por lo que mataron,” escupe una de las seguidoras de Sevria.  
+—“El bosque está envenenado,” murmura Tilna.  
+—“No. El bosque está despierto,” responde Varek.
+
+Las palabras no llevan a golpes.  
+Pero sí a separaciones.  
+Hay quienes ya no se sientan juntos a comer.  
+Quienes miran a los marcados como si fueran otra cosa.
+
+---
+
+# 🗕️ Día 11 – Voces entre la maleza y ojos que no parpadean (Parte II)
+
+🌄 **Cuando amanece, el aire trae más preguntas que respuestas.**
+
+La grieta, aquella hendidura húmeda al oeste, sigue abierta.  
+Un grupo propone volver con sogas, antorchas y más ojos.  
+La idea no agrada a todos… pero la curiosidad es más fuerte que el miedo.
+
+🧬 **La fiebre no cede.**  
+Los niños en coma no empeoran, pero tampoco despiertan.  
+Las mujeres más viejas colocan paños fríos y cantan a Tuleia en voz baja.  
+Orien Talek, con una infusión nueva, les da de beber.  
+Aún no hay respuestas. Solo vigilancia.
+
+🌽 **El bosque llama.**  
+Con el silvarro muerto, hay más rastros de presas.  
+Huellas frescas, excremento reciente, ramas partidas.  
+Varek y otros cazadores se preparan.  
+No saben qué encontrarán. Pero lo intentarán.
+
+🌀 **Los marcados tienen nuevas preguntas.**  
+Las runas en el bastón de Karn han cambiado de tono.  
+Vaerun dice que sueña con símbolos similares.  
+Eysa, en la madrugada, vio uno de los signos reflejado en el agua.  
+Se habla de buscar a un sabio, de interpretar… o al menos documentar lo que ahora portan en la piel.
+
+🪑 **Y otros… limpian.**  
+Los alrededores del refugio todavía están cubiertos de ramas viejas, musgo espeso y raíces salientes.  
+Algunos deciden seguir limpiando, despejando el terreno.  
+No es glorioso. Pero es necesario.
+
+El día avanza.  
+El sol parece más fuerte.  
+Pero las sombras no retroceden del todo.
+
