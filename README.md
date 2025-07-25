@@ -404,3 +404,110 @@ Defender a la niña. Mostrar que no nos rendimos.
 
 **2️⃣ Entregarla como tributo.**  
 Evitar su ira. Pagar el precio.
+
+# 📅 Día 8 – El fuego en las ramas y la marca que no se borra
+
+🌲 **El árbol seguía allí. Y la criatura también.**
+
+El silvarro no descendió.  
+No atacó.  
+Solo observó.
+
+Su cuerpo exhaló un aroma dulce y denso.  
+Como miel vieja. Como savia caliente.
+
+Todos lo sintieron distinto.  
+Algunos temblaron. Otros se calmaron.  
+Pero una cosa fue común:  
+Nadie quería moverse.  
+Nadie quería luchar.
+
+🧠 Vaerun Thalas, el soñador, se adelantó. Su voz no era fuerte, pero sí firme:  
+—“Entendemos tu señal… pero ella es nuestra. No puedes tomarla.”
+
+El silvarro fue indiferente.  
+No avanzó.  
+No retrocedió.  
+Solo siguió señalando con esa mano alargada… a la hija de Karn.
+
+🪓 **Entonces, Karn rugió.**
+
+Su cuerpo dejó de obedecer la razón.  
+Solo quedó la furia.  
+Corrió, bastón metálico en alto.  
+No pensó. Golpeó.
+
+La criatura descendió de golpe.  
+Una sombra larga.  
+Un látigo de ramas y músculos.
+
+Su rostro, antes dorado, se tornó rojo.  
+Como brasa viva.  
+Como sentencia.
+
+Karn cayó.  
+El golpe lo lanzó contra el suelo.  
+Aturdido. Roto.  
+Y la bestia alzó otro brazo…  
+Listo para aplastarlo.
+
+🗡️ **Y entonces, Darik se levantó.**
+
+Nadie lo esperaba.  
+No debía estar en pie.  
+Pero lo estaba.
+
+Con el cuchillo en mano, cortó el brazo del silvarro.  
+Un chasquido.  
+Un grito.  
+Un destello.
+
+El silvarro giró… y con un golpe, hirió mortalmente al cazador.  
+Darik cayó.
+
+No hubo sangre común.  
+La criatura sangraba oscuro. Espeso.  
+Su savia lo cubrió todo.
+
+El bastón… cambió.
+
+Allí donde la savia lo tocó, el metal brilló.  
+Se ennegreció primero. Luego… aparecieron runas.  
+Viejas. Desconocidas.  
+Como si hubieran estado esperando.
+
+🪓 Karn se alzó.  
+Sangrando. Tosiendo.  
+Vivo.
+
+Y con un grito que partió el claro, alzó el bastón una vez más.  
+Y lo clavó en el torso del silvarro.
+
+La criatura chilló.  
+No como animal. No como hombre.  
+Sino como el bosque mismo… siendo roto.
+
+Su rostro estalló en luz roja.  
+Una explosión ciega.  
+Y después… silencio.
+
+🌘 Karn, Kaerith, Varek y Vaerun quedaron cubiertos con la savia oscura.  
+No sale con agua.  
+No sale con fuego.  
+Y no saldrá con tiempo.
+
+Algunos ya murmuran:
+
+—“Es un castigo…”  
+—“Es señal de valor…”  
+—“O una maldición. Por matar algo que no debía morir.”
+
+🐺 La noche llegó sin cantos.  
+El aire se volvió más claro.  
+Las ramas dejaron de susurrar.  
+Las sombras se retiraron.  
+Los perros… aullaron.
+
+En la casa comunal, Kaerith la pareja de Darik prepara su cuerpo en silencio.  
+🪵 Karn no suelta el bastón.  
+Y la niña duerme, abrazada por su madre, rodeada por los perros, bajo un techo de ramas tejidas con miedo y esperanza.
