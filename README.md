@@ -692,5 +692,100 @@ Kaerith cree que hay algo o alguien vigilando. Explorar puede ser peligroso… p
 
 🗳️ *Vota con sabiduría. No queda energía para equivocarse más.*
 
+# 📅 Día 13 – El Hambre Desata a la Bestia
 
+🌫️ La noche anterior fue densa. El aire sabía a barro viejo y miedo rancio.  
+Los cuerpos dormían mal, envueltos en mantas húmedas y suspiros secos.  
+Los perros no dejaban de moverse, especialmente al norte del claro. Nilhae los seguía en silencio, como si entendiera algo que los demás no podían ver.
+
+---
+
+🔨 Por la mañana, se trabajó como se pudo. Thiran Vekk golpeaba una hoja de hierro con más frustración que fuerza.  
+—“Sin fuego no hay filo, y sin filo… no hay mañana,” murmuró entre dientes, sin dejar de martillar.
+
+🪵 Las defensas seguían incompletas. Las ramas mal puestas crujían con el viento.  
+—“Esto no aguanta nada,” dijo Varek, pasando la mano por una soga suelta. “Otra noche así y hasta los lobos se reirán.”
+
+🍂 Los enfermos no ayudaban. La mayoría ni siquiera podía caminar. Otros temblaban sentados, con los ojos vacíos.
+
+---
+
+🐗 Al caer la noche, el error se pagó.
+
+Una rendija mal sellada dejó paso al horror. El **jabalí herido**, el mismo que Karn había querido rastrear, irrumpió en el campamento.
+
+Ciego de rabia, con espuma negra en el hocico y espinas en el lomo, embistió el **almacén comunal**.
+
+Las raíces, frutas, hongos y hasta parte de la miel recolectada volaron por los aires. Barro y sangre se mezclaron.  
+Tilna gritó al ser embestida. Un joven recolector fue arrastrado. El caos se desató.
+
+🔥 Kaelm intentó espantarlo con una antorcha, pero fue derribado de un golpe.
+
+🩸 Entonces, **Kaerith** emergió de entre las sombras.  
+Tenía barro seco en la piel y el rostro marcado aún por la savia del Silvarro.  
+Sin dudar, levantó una lanza improvisada y corrió hacia la bestia.
+
+—“¡Kaerith, no!” —gritó Seyna.  
+—“¡Atrás!” —ordenó Karn. Pero ella ya había saltado.
+
+Con un giro firme, **clavó la lanza en el costado del jabalí**.  
+Un chillido inhumano. Un espasmo. Y luego… silencio.
+
+El cuerpo del animal cayó pesado entre el barro y los restos del almacén.
+
+---
+
+🧪 Orien Talek se acercó, en silencio. Con manos firmes, abrió la carne.  
+—“Está… negro por dentro.”  
+Veneno. Rabia. Putrefacción.  
+—“Esto no se come. Ni quemado.”
+
+💀 Otra pérdida. Otra noche sin comida.
+
+🌘 El resto del día fue gris. Nadie comió. Nadie habló.  
+Nilhae tomó una tabla rota, barro y ceniza… y dibujó:  
+Un jabalí con el vientre cruzado, y un círculo sobre la frente de Kaerith.
+
+Algunos lo vieron como señal. Otros, como advertencia.
+
+Los creyentes comenzaron a murmurar:  
+—“El bosque no tolera su sangre.”  
+—“Los marcados son portadores de sombra.”
+
+Kaerith no respondió.  
+Pero esa noche, **nadie durmió tranquilo**.
+
+---
+
+# 📅 Día 14 – Voces Divididas
+
+🌫️ El humo de la mañana era bajo. Pesado. Como si el bosque no quisiera que el fuego respirara.
+
+🐕‍🦺 Los perros seguían tensos. Olfateaban al norte. Nilhae los observaba sin hablar, pero su mirada era más clara que cualquier palabra.
+
+🔨 Thiran Vekk, con el martillo en mano, golpeaba una hoja desafilada.  
+—“Sin filo, no hay defensa. Y sin ayuda, no hay nada.”
+
+🐗 Kaerith, aún manchada por la batalla, habló:  
+—“Los perros están listos. Podemos cazar. Al menos intentar traer algo.”
+
+🧭 Vaerun Thalas, desplegando un mapa manchado de humedad:  
+—“Si no exploramos, si no entendemos este bosque… nos irá tragando lento.”
+
+🪵 Karn, con voz grave, interrumpió:  
+—“Las cercas siguen abiertas. Ayer entró un jabalí. Mañana podría ser otra cosa.”
+
+🕯️ Entonces, Sevria alzó la voz. No gritó. No pidió permiso.  
+—“Los marcados deben ser apartados. El bosque ya los eligió. Ya los manchó.”  
+—“¡Basta!” —gritó Seyna— “¡Mi hija vive por ellos! ¿Y ahora los quieren echar?”
+
+Silencio.
+
+Sevria continuó, más suave:  
+—“Entonces hagamos el ritual. Con fuego. Con silencio. Con sangre, si es necesario. Que la tierra escuche… antes de que actúe.”
+
+🌲 Afuera, los perros comenzaron a ladrar otra vez.  
+Todos giraron la cabeza hacia el norte.
+
+El bosque… seguía esperando.
 
