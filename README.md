@@ -633,3 +633,64 @@ El día avanza.
 El sol parece más fuerte.  
 Pero las sombras no retroceden del todo.
 
+
+## 📅 Día 12 – Lo que se dice, lo que se calla
+
+La fiebre no cedió.  
+Algunos no despertaron con el amanecer. Otros deliraban, murmurando nombres de los que ya no están.
+
+🌿 Orien Talek, con las manos manchadas de savia oscura —resina seca del Silvarro— se puso en pie durante el consejo.  
+Temblaba al principio. Luego, no.
+
+—“No es un castigo. No es un espíritu. Son los hongos naranjas... los Solmurientes.  
+Si no se hierven tres veces y se secan al sol un día entero… matan.”  
+
+Nadie lo interrumpió.  
+Solo Sevria Neluun desvió la mirada.  
+La anciana, siempre sabia, no dijo nada. Pero Nilhae la observaba fijamente.
+
+---
+
+### ⚠️ Ecos de ese día
+
+🪣 Mientras algunos recolectaban agua del manantial, un jabalí salvaje los embistió con furia. No parecía tener miedo.  
+Fue herido, pero escapó hacia el este.  
+Karn resultó herido. Ahora pide salir a cazarlo antes de que vuelva.
+
+🐾 La niña Nilhae, guiada por los perros, regresó con un faisán. Kaerith asegura que *la niña no los llevó, ellos la siguieron*.  
+Y cuando lo atraparon, no ladraron. Solo esperaron su gesto.
+
+🛠️ El viejo herrero pasó el día lamentando su forja inservible.  
+—“Tenemos hierro, pero no calor. Herramientas, pero sin filo. No puedo proteger sin reconstruir.”
+
+🔍 Vaerun Thalas cree que la grieta entre las rocas podría ser una cueva. Él propone explorarla: *“Si es un refugio o guarda recursos... debemos saberlo antes que lo haga otro.”*
+
+Al anochecer, los perros ladraron hacia el norte.  
+Algunos creen que el jabalí ha regresado.  
+Otros creen que no es el jabalí.
+
+---
+
+## ⚖️ El Consejo ha propuesto cinco acciones:
+
+1️⃣ **Investigar la cueva**  
+La grieta entre rocas parece una caverna. Quizá un refugio… o algo peor.
+
+2️⃣ **Intentar reparar las herramientas**  
+Thiran necesita ayuda, combustible y fe. Si lo logra, podrían forjarse defensas, trampas y nuevos cuchillos.
+
+3️⃣ **Cazar al jabalí herido**  
+Karn quiere rastrearlo antes de que ataque de nuevo. Su carne también alimentaría a los enfermos.
+
+4️⃣ **Fortificar el campamento**  
+Poner trampas, barreras de ramas, huesos que alerten… lo que sea para resistir.
+
+5️⃣ **Explorar más allá del bosque cercano**  
+Kaerith cree que hay algo o alguien vigilando. Explorar puede ser peligroso… pero seguir ciegos también lo es.
+
+---
+
+🗳️ *Vota con sabiduría. No queda energía para equivocarse más.*
+
+
+
